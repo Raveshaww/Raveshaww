@@ -1,1 +1,1 @@
-Experienced Sysadmin looking to diversive their skillset a bit. 
+Sysadmin turned developer's random musings.
